@@ -8,4 +8,4 @@ Hobi saya yaitu :
 * Tidur
 <br>
 Cita-cita saya menjadi orang kaya<br>
-jangan lupa follow saya di [instagram](https://www.instagram.com/mhmmd_dhiwa/)ku ya.
+jangan lupa follow saya di [instagram](https://www.instagram.com/mhmmd_dhiwa/) ku ya.
