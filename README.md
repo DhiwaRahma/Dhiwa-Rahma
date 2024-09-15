@@ -6,4 +6,4 @@ Hobi saya yaitu :
 * Olahraga yang menyenangkan
 * Bermain Game
 * Tidur
-Cita-cita saya menjadi orang kaya
+<br>Cita-cita saya menjadi orang kaya
