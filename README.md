@@ -7,4 +7,5 @@ Hobi saya yaitu :
 * Bermain Game
 * Tidur
 <br>
-Cita-cita saya menjadi orang kaya
+Cita-cita saya menjadi orang kaya<br>
+jangan lupa follow saya di [instagram](https://www.instagram.com/mhmmd_dhiwa)
